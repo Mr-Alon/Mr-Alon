@@ -30,7 +30,7 @@ ___🦋(🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊)🦋___
 <p align="left">
 <a href="https://linkedin.com/in/🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊" height="30" width="40" /></a>
 <a href="https://instagram.com/simplified_learner" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="simplified_learner" height="30" width="40" /></a>
-<a href="https://www.youtube.com/c/simplified learner" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="simplified learner" height="30" width="40" /></a>
+<a href="https://www.youtube.com/@thevoiceofsoul786" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="simplified learner" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
