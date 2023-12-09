@@ -22,7 +22,7 @@ ___🦋(🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊)🦋___
 ___🦋(🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/mralone420/simplified_learner]
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/mralone420/]
 ___🦋(🌊𝐌𝐑.𝐀𝐋𝐎𝐍𝐄🌊)🦋___
 - ⚡ Fun fact **I am funny😅**
 
